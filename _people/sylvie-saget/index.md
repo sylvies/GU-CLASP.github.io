@@ -7,9 +7,9 @@ profileImage: "S.jpg"
 
 Sylvie Saget is a PhD Researcher in Computational Linguistics   
 --- No worries !! --- Whenever she is classified by the lab as a "Past member"/not "PhD student", Sylvie is an active researcher & PhD student!   
-But dealing with academic theft and sabotage takes times and deeply constraints how one can make her research public ensuring her name won't be erased and replaced!! Here in Sweden - together with men & their "friends" at the international level - you may find many women & institutions who actively take part in Matilda effect! Nop - her work is not "open bar"!!!!!
+But dealing with academic theft and sabotage takes times and deeply constraints how one can make her research public ensuring her name won't be erased and replaced!! Here in Sweden - together with men & their "friends" at the international level - you may find many women & institutions who actively take part in Matilda effect! Nop - her work is not "open bar"! 
 
-Her research focuses on conversational agents that can talk and act autonomously such as humans, robots, virtual humans - or, generally speaking, any kind of object or system involving social interaction.
+She is interested in conversational agents that can talk and act autonomously such as humans, robots, virtual humans - or, generally speaking, any kind of object or system involving social interaction.
 
 Her research focuses on the modeling of reasoning and dialogue via a transdisciplinary approach mixing philosophy (of Mind + of Science&Technology), logics and psychology. Application areas she is focusing on:
 
@@ -51,7 +51,7 @@ My scientific journey:
 
 An approach initiated more than 15 years ago & 100% designed ***by myself***!!!  
 
-Following a pityfull experience facing researchers obliged to steal others'work to fake creativity in their books, articles or to obtain grants, etc.  - making my plans their owns (easy! - steal & kill)
+Following a pityfull experience facing researchers obliged to steal others'work to fake creativity in their books, articles, to obtain grants, set up new collaborations, etc.  - making my plans their owns (easy! - steal & kill)
 
 I had the pleasure to meet high-level professionnals who know what integrity and responsibility mean.
 I am more than proud to have joined or learned about these amazing networks - highly recommanded:
