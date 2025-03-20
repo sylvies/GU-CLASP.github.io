@@ -51,7 +51,7 @@ My scientific journey:
 
 An approach initiated more than 15 years ago & 100% designed ***by myself***!!!  
 
-Following a pityfull experience facing researchers obliged to steal others'work to fake creativity in their books, articles or to obtain grants, etc.  - making my plans their owns (easy! - steal & kill)
+Following a pityfull experience facing researchers obliged to steal others'work to fake creativity in their books, articles or to obtain grants, etc.  - making my plans their owns (easy! - steal the hard work & kill the human)
 
 I had the pleasure to meet high-level professionnals who know what integrity and responsibility mean.
 I am more than proud to have joined or learned about these amazing networks - highly recommanded:
