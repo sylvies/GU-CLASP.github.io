@@ -1,6 +1,6 @@
 ---
 name: "Sylvie Saget"
-role: 3
+role: 5
 title: "PhD Student"
 profileImage: "S.jpg"  
 ---
